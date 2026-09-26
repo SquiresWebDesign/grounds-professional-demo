@@ -1,0 +1,1 @@
+Polished sales demo. Not an official website. Confirm all business details and obtain permission for branding, photos and reviews before publishing as the business's official site.
